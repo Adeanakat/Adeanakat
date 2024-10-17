@@ -10,3 +10,7 @@ i want to create a voice for people like me who have had there constitutional ri
 Adeanakat/Adeanakat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+I would love to have my own online boutique where i can sell my art and other things. I would love to have a group of like minded compadres, to sit around and talk philosophical with, or maybe discussing conspiracy theories that are becoming facts. 
+I have recently come to the realization that I am a creator in all different dimensions and realms, not just with my own race of beings i have birthed or my hobbies but in the virtual "wWw" 
+
+https://www.reddit.com/user/Happy-Dealer1649/
