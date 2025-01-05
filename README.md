@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Adeanakat
+- 👋 Hi, I’m @adeanaTHEgreat
 - 👀 I’m interested in ... learning about crypto and nft
 - 🌱 I’m currently learning ...what im doing on here
-- 💞️ I’m looking to collaborate on ... self sovereignty 
+- 💞️ I’m looking to collaborate on ... self sovereignty, web design, video analysis, passive income, and making a better future.
 - 📫 How to reach me ...text me
 - 😄 Pronouns: ...she
 - ⚡ Fun fact: ...im trying to make everything seem like i am holding it together but deep down im falling apart.
